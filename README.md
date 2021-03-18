@@ -9,3 +9,5 @@
 [ Russia reacts angrily after Biden calls Putin a 'killer'](https://edition.cnn.com/2021/03/18/europe/biden-putin-killer-comment-russia-reaction-intl/index.html)
 
 > 분위기 좋지 않다. 미국과 러시아의 기싸움은 시작되었다. 억제라는 표현을 이란, 러시아, 중국 세나라를 집어서 표현하고 있으며, 두나라의 소통 또한 부정적으로 흘러가고 있다.
+
+**저의 생각 중 잘못된 부분은 코멘트 부탁드립니다!^^**
